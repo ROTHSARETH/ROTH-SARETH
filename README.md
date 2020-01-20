@@ -1,2 +1,0 @@
-# ROTH-SARETH
-HELLO
